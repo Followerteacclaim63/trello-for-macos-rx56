@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Trello for macOS extension with ultimate Trello for macOS Extension | dark mode + database templates. Featuring dark mode and database templates, it's the best
 
 
 
